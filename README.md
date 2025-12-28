@@ -4,6 +4,8 @@
 
 <img width="680" height="383" alt="image" src="https://github.com/user-attachments/assets/576b33ff-348e-41ee-85d6-396ab255dcdd" />
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vwowgyb6dokv7our3yoilpc22a&cover_image=true&theme=spotify-embed&show_offline=true&background_color=262626&interchange=true&profanity=false&bar_color=69205e&bar_color_cover=true&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vwowgyb6dokv7our3yoilpc22a&redirect=true)
+
 ## LOADING . .. .
 Subspace is me btw,, i say as i throw this into ur face
 <img width="735" height="707" alt="image" src="https://github.com/user-attachments/assets/532f7128-e3ab-4ebf-8f47-7dda9c0568d0" />
